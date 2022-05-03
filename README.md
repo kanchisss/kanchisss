@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Kanchi Saraf.
-- 👀 I’m interested in coding.
+- 👀 I’m a programmer, interested in coding.
 - 📫 How to reach me ...
